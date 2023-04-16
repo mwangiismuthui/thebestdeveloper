@@ -8,7 +8,7 @@
 Hello there , I hope you are fairing on well. For better communication feel free to reach out to me via this platforms so that we may work together on more of your tasks if it is feasible for you
 
 
-- WhatsApp : (https://wa.me/+254721257308).
+- WhatsApp : (https://wa.me/+254724132852).
 - Skype : https://join.skype.com/invite/i30liRxXJhYo
 - Email:  <a href="intelligentsoftwaresdev@gmail.com">intelligentsoftwaresdev@gmail.com<a/>
 
